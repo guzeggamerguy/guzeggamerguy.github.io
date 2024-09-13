@@ -1,1 +1,2 @@
-# guzeggamerguy.github.io
+# WELCOME!
+I am the founder of microzeg.
